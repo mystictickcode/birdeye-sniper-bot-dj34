@@ -1,4 +1,4 @@
-# 
+# updated Automation for birdeye sniper bot | sandwich-attack-execution & multi-chain-support offers the most advanced birdeye sniper bot, with sandwich-attack-execution and
 
 
 
